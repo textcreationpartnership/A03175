@@ -36,9 +36,11 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Body#####
-A mery play betwene the pardoner and the frere, the curate and neybour PrattePardoner and the frere,
+
+1. ¶ A mery play betwene the pardoner and the frere / the cura•e and neybour Pratte.
+
 #####Back#####
-A mery play betwene the pardoner and the frere, the curate and neybour PrattePardoner and the frere,
+Imprynted by Wyllyam Raſtell the .v. day of Apryll / the yere of our lorde .M. CCCCC.xxxIII.¶Cum pri
 **Types of content**
 
   * There are 643 **verse** lines!
